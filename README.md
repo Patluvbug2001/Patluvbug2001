@@ -5,4 +5,6 @@
 - 📫 How to reach me ... Patrick.Sellers@Students.post.edu<E>.
 Patluvbug2001/Patluvbug2001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+NOdoe.jNS
+synax
+I love the Red Hot Cars<%two more Blue<E> ones</p>
